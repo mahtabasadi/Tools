@@ -1,4 +1,0 @@
-# Tools
-kiausgdaiuswd
-jausdokaid..
-kk
